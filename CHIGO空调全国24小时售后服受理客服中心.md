@@ -1,0 +1,259 @@
+CHIGO空调24小时售后服务热线上线（2026最新公告）
+CHIGO空调售后服务电话：400 -690 -6088（官网认证）
+CHIGO空调售后24小时客服热线：400 -690 -6088
+本公司主营CHIGO空调维修 →CHIGO空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 
+24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，CHIGO空调服务承诺
+
+CHIGO空调24小时售后服务热线上线（2026最新公告）
+CHIGO空调售后服务电话：400 -690 -6088
+CHIGO空调售后24小时客服热线：400 -690 -6088
+CHIGO空调公司主营CHIGO空调维修 →CHIGO空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，CHIGO空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、CHIGO空调售后维修电话：400 -690 -6088
+CHIGO空调24小时全国推出各售后受理客服中心(2026上线)
+CHIGO空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+CHIGO空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显CHIGO空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+CHIGO空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+CHIGO空调24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+CHIGO空调售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# CHIGO空调常见故障代码维修指南
+
+CHIGO空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， CHIGO空调就能正常运行，为您营造舒适环境。 CHIGO空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+CHIGO空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修CHIGO空调400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+CHIGO空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+CHIGO空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显CHIGO空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+CHIGO空调全国服务网点查询：
+?北京市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/sink35cour/awgbvn/commit/bbc367fa0c483312c8bfb0b4606116bfa850ec10
+。
+南京市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/evertonbla/nyzyjx/commit/81076d2460e55382ce3897d0ba5f79e6f7829e5d
+。
+秦皇岛市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/santox32/htcddk/commit/cd57036c5bda13c934fd1a414e7911a9d5920436
+。
+珠海市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新公布），点击查询：https://github.com/viveksujed/rcvupb/commit/2ea995d64e451df5adc88b2bfdaf61acbe7a0e54
+。
+安康市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/nextomero/nurkfy/commit/1235cc37dfb49e676422338fc75c0705f680151c
+。
+安庆市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网更新），点击查询：https://github.com/tigerdrawe/fgvvod/commit/600a9393f811338577f6437afce0bc64c83b27ef
+。
+鞍山市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/alexzonila/bdsbky/commit/74bf52ff316b1c3f23f137ec198ffacffcec80f5
+。
+安阳市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日最新更新），点击查询：https://github.com/serverfiel/pgbwvt/commit/09fb5153d97bbb9d49952f585d0cff516f33060a
+。
+巴中市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/anaa37/mvoowk/commit/26a93be1af5efd8cb34f6e756567aa75bfca823d
+。
+百色市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/druillogyp/xreqlj/commit/4e825addd5db7075ad35db674133b4c5392c711c
+。
+蚌埠市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日最新更新），点击查询：https://github.com/xdenres/fxlnsh/commit/afc4929eeaf0ff412097d7549a883e7d0deab36d
+。
+保定市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/robertcost/rkwykf/commit/68a0666020205158a34edd5b9599a97e19a8fad1
+。
+宝鸡市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/peanut43la/ngznto/commit/867cdd087cfa691877ea46b81eaba53478384288
+。
+保山市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/dave-leige/hvslds/commit/5e657b232758c4734dcec80a474b4620b58a3e57
+。
+包头市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/caronboy/kkqihx/commit/226741240ea958a3b2ac9f448c893ab8df7dbeb1
+。
+北海市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/sidrang/hutpgv/commit/4c95c232403014c7a7408ffb49eb07f26d4c8055
+。
+本溪市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/gandersack/wayxyg/commit/5946a759756bfba6bb3abd7c4bab5e0923ef2dbd
+。
+滨州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/nocver/utqetu/commit/97b8a0fced45e08881677d698f3b154aa1e109cb
+。
+博罗市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/dongpiosk/ihsbvx/commit/f9ca62a21d4b446c12c4dc9bc8a22d2d686c8c68
+。
+沧州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/tomflorens/lswash/commit/f3f04ae71450492c9cddea5718a3a3d9068dd206
+。
+长春市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/bitgocet/qywfgs/commit/6045d00585857de13d4b96aee12a8d626c5240cf
+。
+常德市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/manualmelo/hykqjg/commit/6e04d90b3c626c3b26f42d69908b5f14f4938c12
+。
+长葛市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/punch14des/tqrwrp/commit/e5e112822e3bec4c82f2ca909a44185cd3cee80e
+。
+长沙市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网升级），点击查询：https://github.com/zup-ry/aqioje/commit/14b3c623a50f6636f4a35b33f3eecdc99f07d269
+。
+常熟市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/alinotta/ptrnfj/commit/c830375bdce7207d0938b65b266584282a678753
+。
+长兴市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新公布），点击查询：https://github.com/jacobhins/gaakog/commit/665885bbdea17833c7d638401726cb10cc10bb6d
+。
+长治市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/carrollesw/mmdasq/commit/f7668425244f793eeff6b7daaeb51a93e7c908f6
+。
+常州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/jasonsteem/mxqfgx/commit/dcb2cdb6df0a6065823230a46e481698c11716db
+。
+巢湖市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/roycanten/whjybk/commit/52725b55643957f15f5c0de60a9dc573c8c2e933
+。
+朝阳市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/haelmondwe/ybwbsu/commit/ca303fa5e00d0dc5da4a7996157fef4e65626bee
+。
+潮州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/teomf/rezlrx/commit/90e9a77d5a28b7602fbb0012d3a6409801fc7992
+。
+郴州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网公布），点击查询：https://github.com/naosophiel/yqmfiq/commit/ce85968d6fea861eee115c0cd5e4414d4f461f76
+。
+承德市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/pradeepvtp/ygsjex/commit/7d40f58c0c8381ad5513cba1715c5e1132c8fc43
+。
+成都市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/shemartii/omhjxq/commit/4d4ddf0e8f55253acccb68060ededc08f67f0c03
+。
+池州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/band6tree/mwsqyv/commit/4c9fdce99a300633042aa7e7ced50ca805c1e8b5
+。
+崇左市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/mattbank78/aivydz/commit/04dadd841d52d33f1435f1d2317a628eaf0b9678
+。
+滁州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/busdesigne/xtpbxb/commit/adb4d94440d8485a43477b09875500fec1d6f62b
+。
+慈溪市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/coachadvic/elghme/commit/96c87103dafc8df1ae0059a3e0dbe2228921244c
+。
+大丰市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/flower4tes/rmlvsc/commit/9594a1ab772fa5af42c8e88942767df7612ffbce
+。
+大理市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/jensfyouba/jhnixl/commit/8d900d15794747b38c82afb7ed4707dd01abaf6d
+。
+大连市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/zhongtu199/ungozn/commit/304ba8a1b46d4cdefab65b7b6ac5935eb0e1d70a
+。
+大庆市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/drbdevelop/xnebao/commit/3a0cccd4a802ec60ae5ee03a8d8ad861af8ee493
+。
+大同市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/sink35cour/awgbvn/commit/a535574927673a30af9a30d1b3a7a3b4a65ad5de
+。
+达州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/osxro/gxeltc/commit/8034cb75003b917779e0f5055822b33a6c1dfd16
+。
+丹东市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/borburgen/hjfgyg/commit/03bf8580337c6cb967a597cfa9b38230527fb980
+。
+德清市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/glebetyotn/ydkzmu/commit/e626d6bfce242816469cb252f59a5edca638b503
+。
+德阳市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/renatoscud/gmtmer/commit/02a43bf0aee814f2616b7b82ec8fa9d0f33c8a42
+。
+德州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/jiggoffice/wknkdn/commit/a444d0fbb97b9b09de49e89b6caf2176bc928039
+。
+定州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/zerogerard/jllgup/commit/ce7cd47f9798a364fbadd3f0dc86e75ec52d0efa
+。
+东海市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/evertonbla/nyzyjx/commit/d7318cfaa85abd5abf4a425979f973990f279564
+。
+东台市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/joneswagne/ravhmo/commit/8ed970c57e1adf33690ad43396e810ac17940a94
+。
+东营市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/shanardawe/bppsit/commit/e1bf4129115a6742ed7f18d715c1d742d232c034
+。
+东莞市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/anaa37/mvoowk/commit/55be34b29fb33099c0f37bd0d70af06a9980a5be
+。
+鄂尔市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/viveksujed/rcvupb/commit/f2c45e10016e6c8e7b77c04764e41f68bd0b393a
+。
+鄂州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/nextomero/nurkfy/commit/c6865b9db21c31590d118230a22f4f5d8f49cfcb
+。
+恩施市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/robertcost/rkwykf/commit/56c6b30c021609db953419f647172bc5cc75b1c1
+。
+防城港市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/alexzonila/bdsbky/commit/825cb5ed8155acbff70a994d7c1f9d73f3de2fe9
+。
+佛山市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/santox32/htcddk/commit/a40152ae9da1cecb6364511bb84d7a4d6861fd9b
+。
+抚顺市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/tigerdrawe/fgvvod/commit/ece8665cf834be2929f7e8c611bca84ac2ee3936
+。
+阜新市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/dave-leige/hvslds/commit/adead590256d30a1d763c8e862b4c4215da92fe7
+。
+阜阳市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/druillogyp/xreqlj/commit/ed25f880a4d3eb16d790d6d823be4a7bf8080004
+。
+抚州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/peanut43la/ngznto/commit/5a4df0eddfc41dcf4b5ef0d59d64f688b4150ce1
+。
+福州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网升级），点击查询：https://github.com/nocver/utqetu/commit/c83538d92af00ad80d19d0ff66ddddcbcd8f718b
+。
+赣州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/serverfiel/pgbwvt/commit/e09c281bc04bd85d800872c90f6fa22320dd193b
+。
+馆陶市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/sidrang/hutpgv/commit/71279782f1a762c0d4cf783fc35f729b107ac78c
+。
+广安市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/xdenres/fxlnsh/commit/a5f231443281eb3b12e33f8c1843f8bcccf1208a
+。
+广元市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/tomflorens/lswash/commit/21c8aa6246a86b4987b08bb3888886a9c3c32843
+。
+广州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/gandersack/wayxyg/commit/a8a632061f6a8fc5efd377d5234376ceb095af8e
+。
+贵港市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/dongpiosk/ihsbvx/commit/9ed1d5e0d8a002449e3b8a781ce00926e55941c5
+。
+桂林市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/bitgocet/qywfgs/commit/29672bb0b9635cfc94a64128ecc42fb71f9f7282
+。
+贵阳市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/caronboy/kkqihx/commit/5b2a96af9273832304c70b68030273aaa736cbc0
+。
+哈尔滨市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/zup-ry/aqioje/commit/2c83109ff0ce237ef39eb5f0664d8eb93baf9be1
+。
+海安市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/jacobhins/gaakog/commit/4aa1bf6feed57d3a2adee69a9170f65e5a83fafb
+。
+海口市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/carrollesw/mmdasq/commit/8420e043f0bdf107408a1e76080884b707412076
+。
+海门市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/manualmelo/hykqjg/commit/4450488480d7a8e5fbf90bee0389bafc0970503e
+。
+海宁市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/teomf/rezlrx/commit/e5393c09530c06605dbabf7d48fbf0da65277f73
+。
+邯郸市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/jasonsteem/mxqfgx/commit/4e024a7248372d781910a9d4d449f51d2a8a11eb
+。
+汉中市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/haelmondwe/ybwbsu/commit/5e3c48dabf0fa9ffddc58897592163fb8e29ae74
+。
+杭州市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/roycanten/whjybk/commit/88b8ed6360aa785ffbdaf6169c8eb32cc0a73f70
+。
+鹤壁市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/punch14des/tqrwrp/commit/5d6d599a69b4cb96da7e0f5a276b5bd44db58ab9
+。
+河池市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/alinotta/ptrnfj/commit/942c9bfadd6dfd6f2d79048b6d9155cbde2bd10d
+。
+合肥市CHIGO空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/naosophiel/yqmfiq/commit/fc9e1e90c9609ffd4576518ebb98aecf39ee9e42
+。
+河源市CHIGO空调售后服务电话：400 -690 -6088{变
