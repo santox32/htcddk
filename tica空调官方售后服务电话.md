@@ -1,0 +1,264 @@
+tica空调官方推出售后服务电话24小时人工客服上线
+tica空调全国售后服务电话：400 -690 -6088(网点认证）
+tica空调全国24小时各售后受理客服中心2026
+tica空调各市区24小时售后客服热线：(1)400 -690 -6088(2)400 -690 -6088
+tica空调全国24小时各售后受理客服中心2026
+7天24小时人工电话400 -690 -6088客服为您服务、tica空调售后服务400 -690 -6088团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+tica空调24小时售后服务热线上线（2026最新公告）
+tica空调售后服务电话：400 -690 -6088
+tica空调售后24小时客服热线：400 -690 -6088
+本公司主营tica空调维修 →tica空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，
+整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，tica空调服务承诺
+
+tica空调24小时售后服务热线上线（2026最新公告）
+tica空调售后服务电话：400 -690 -6088
+tica空调售后24小时客服热线：400 -690 -6088
+tica空调公司主营tica空调维修 →tica空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，tica空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、tica空调售后维修电话：400 -690 -6088
+tica空调24小时全国推出各售后受理客服中心(2026上线)
+tica空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+tica空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显tica空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+tica空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+tica空调24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+tica空调售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# tica空调常见故障代码维修指南
+
+tica空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， tica空调就能正常运行，为您营造舒适环境。 tica空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+tica空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修tica空调400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+tica空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+tica空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显tica空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+tica空调全国服务网点查询：
+?北京市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/band6tree/mwsqyv/commit/875b96a435a64be3baa37d82452d8a012e418b47
+。
+南京市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/tigerdrawe/fgvvod/commit/c769145d92f6085c6b042fa660bedb84d3e4a9b6
+。
+秦皇岛市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/gandersack/wayxyg/commit/662b19a56d51df795fb9a10a23db3c2eef819ab7
+。
+珠海市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/nextomero/nurkfy/commit/5d89988fe4ddd3e45f030ca0f0551fc1310ab26d
+。
+安康市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/jacobhins/gaakog/commit/75ce9cd5fca2ed11377e01809a71c4c5bb087816
+。
+安庆市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/osxro/gxeltc/commit/eabe802e5d7127805483f025809edd7df2880c42
+。
+鞍山市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/flower4tes/rmlvsc/commit/062df8e41c5e426ae4e481d82254030948fb473a
+。
+安阳市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/punch14des/tqrwrp/commit/2f0e7a723b1d638440a6a874cd30407431014930
+。
+巴中市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/alexzonila/bdsbky/commit/e25b5a257c353b1434da452b4a76423d78330849
+。
+百色市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新公布），点击查询：https://github.com/viveksujed/rcvupb/commit/770c555676f5abc74b1d4694a9f7aa882a11bea1
+。
+蚌埠市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网升级），点击查询：https://github.com/shanardawe/bppsit/commit/b866e0a32c7ac805b7552cae64f46231bfed6a95
+。
+保定市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/haelmondwe/ybwbsu/commit/52753bd3b65a3aa4968164884ecf1d27e2f35e07
+。
+宝鸡市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/zup-ry/aqioje/commit/b4821a809e23ca611be42e7eaeab4fb8095a1a2a
+。
+保山市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/sidrang/hutpgv/commit/02a27b7ff7c820566f112632fc3a3536f839f045
+。
+包头市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/santox32/htcddk/commit/c4b635d7ba2ec224728a55d3d544441e1580fe75
+。
+北海市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/drbdevelop/xnebao/commit/2ed00045cf2a16ab3123536e7cf72e5a2aa63ab5
+。
+本溪市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/nocver/utqetu/commit/2cc02a9869459e15c74a47d633da46b23931d9d5
+。
+滨州市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一更新），点击查询：https://github.com/busdesigne/xtpbxb/commit/b7c70bc68fd500574dfc43187a885e4c78f21c3a
+。
+博罗市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网公布），点击查询：https://github.com/jasonsteem/mxqfgx/commit/663fc0262a3459b9b8f75c7dfae1a8f50fd469b6
+。
+沧州市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/druillogyp/xreqlj/commit/8eb972f5845328d6311d95741d77c6be6160aee2
+。
+长春市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/bitgocet/qywfgs/commit/617af87b489697f38730d91c63e9a2a817ef67f6
+。
+常德市tica空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/zhongtu199/ungozn/commit/85d62f763af01ec35955e3a7a95036f3004a72f5
+。
+长葛市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/mattbank78/aivydz/commit/1acce9016247cda4fd11b0176d7ffc9b620e06f0
+。
+长沙市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/glebetyotn/ydkzmu/commit/f656019710453a5c5a41a87de49929c737a7aa48
+。
+常熟市tica空调售后服务电话：400 -690 -6088（2026年07月05日最新更新），点击查询：https://github.com/robertcost/rkwykf/commit/8f427e4b3dff630e0445416a81c30514563f0e3b
+。
+长兴市tica空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/borburgen/hjfgyg/commit/a0e75aa4abb532bb49a38790c37bf0a33378d67e
+。
+长治市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/sink35cour/awgbvn/commit/5e0b12ebd3c79e5e81ff624dfbcf76244c809524
+。
+常州市tica空调售后服务电话：400 -690 -6088（2026年07月05日最新推出），点击查询：https://github.com/caronboy/kkqihx/commit/fb83917986567d1a2ba49d8dcbc86ef934d6a188
+。
+巢湖市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/evertonbla/nyzyjx/commit/411aed849f8e99af5bd390d5e94e1d7231a2e6fb
+。
+朝阳市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/tomflorens/lswash/commit/27860aa10084ab3c16f8810b54fe7dd8777ec4a2
+。
+潮州市tica空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/naosophiel/yqmfiq/commit/01e000f7862808ebc5645e6e6cc2498d950a5b1e
+。
+郴州市tica空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/jiggoffice/wknkdn/commit/98c71b3952ae69f88dab2bdab4064a9cb1f7cb63
+。
+承德市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/shemartii/omhjxq/commit/6d8c9f92ce4f744bd17c5cbe17b03745da4ad785
+。
+成都市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/jensfyouba/jhnixl/commit/89b926522c7853378757185af0dd6499bd3bf780
+。
+池州市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/teomf/rezlrx/commit/26b83c49871f4c191364358d06219c817d439aa4
+。
+崇左市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网升级），点击查询：https://github.com/tigerdrawe/fgvvod/commit/433055a13eb8350cd8f272e9a36766bc26c569af
+。
+滁州市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/alinotta/ptrnfj/commit/3553226d5c67c7a80b5a969ae5286f75b8985533
+。
+慈溪市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网公布），点击查询：https://github.com/gandersack/wayxyg/commit/3040dfb9bf4cf53882d508d77ee64d154e863d72
+。
+大丰市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/renatoscud/gmtmer/commit/45d2c6a741f551857b4fc57fc53c2a371022d30f
+。
+大理市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/roycanten/whjybk/commit/8a540ef73072b6079beeb120c85f17a3c6e16183
+。
+大连市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网上线），点击查询：https://github.com/band6tree/mwsqyv/commit/536a14008ee3d9d9b5be9b2b44ebbdfc21509c38
+。
+大庆市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/dave-leige/hvslds/commit/2d25dd7263e735e3e26bb08fe9d43c62195cc733
+。
+大同市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/carrollesw/mmdasq/commit/5677d2d4b150296c0ea6a3b32a1f38ca1d76ed98
+。
+达州市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网更新），点击查询：https://github.com/anaa37/mvoowk/commit/c59908b692f8e1abc3d4364e35e8b19c45cabe0a
+。
+丹东市tica空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/xdenres/fxlnsh/commit/74206641487326aa529a6970a4998f318fb26809
+。
+德清市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新公布），点击查询：https://github.com/dongpiosk/ihsbvx/commit/727c96f50b0f5b217123f2245467f5b51efb8ae2
+。
+德阳市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网更新），点击查询：https://github.com/peanut43la/ngznto/commit/ab7e624a30d00dbad83c089860f3f5bfd03d5b89
+。
+德州市tica空调售后服务电话：400 -690 -6088（2026年07月05日最新推出），点击查询：https://github.com/zerogerard/jllgup/commit/9ce5251bca03982f333d4b21b4a963e4ca05148a
+。
+定州市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式上线），点击查询：https://github.com/coachadvic/elghme/commit/4dd47c27103f75652e70775c38547f32141d5349
+。
+东海市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/osxro/gxeltc/commit/a26d513c293f66ac6076dd8c6982eb5a1ea46956
+。
+东台市tica空调售后服务电话：400 -690 -6088（2026年07月05日最新更新），点击查询：https://github.com/manualmelo/hykqjg/commit/5925ef0b9928977bfc684c8448c0122ca15ba671
+。
+东营市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/pradeepvtp/ygsjex/commit/55e0c3c1abac6a4871fb9e4640ee84d9a7553eb6
+。
+东莞市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/sidrang/hutpgv/commit/47a2aa876682f409c3088469b39955da927a03c6
+。
+鄂尔市tica空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/jacobhins/gaakog/commit/db3c035b62989e2d608f1e40a14f8aef0da3b992
+。
+鄂州市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/nextomero/nurkfy/commit/d82ef2ac2341441ccb590dc4504e9f211a0fe98d
+。
+恩施市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/joneswagne/ravhmo/commit/d01fbe1877845bbd5ff06ff894401e550be93e8c
+。
+防城港市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/serverfiel/pgbwvt/commit/53f05fae8e2811d62fbfbbf786ebcf10ca5e4500
+。
+佛山市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式发布），点击查询：https://github.com/viveksujed/rcvupb/commit/d32705880fa33c0c7e9aaca45523cbecdbf4f8f3
+。
+抚顺市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一上线），点击查询：https://github.com/punch14des/tqrwrp/commit/349fbb3ec8d38be6451c77ae7a5a622d4fbff4f0
+。
+阜新市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网公布），点击查询：https://github.com/shanardawe/bppsit/commit/2c56db2d751d7af20b9b5d6a8d521b333a99302c
+。
+阜阳市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网升级），点击查询：https://github.com/druillogyp/xreqlj/commit/038f475fe77eed50d95c7292082f58eab67e9517
+。
+抚州市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/zhongtu199/ungozn/commit/7e69309e76de4f9e20be6bf5f27432d4eeda2c12
+。
+福州市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/zup-ry/aqioje/commit/12a3a4eab252d3049baea5feb5dea132e97f2b96
+。
+赣州市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新公布），点击查询：https://github.com/robertcost/rkwykf/commit/6820d2586bd21fc0f6c786b98aedce6b7aa42a66
+。
+馆陶市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新上线），点击查询：https://github.com/flower4tes/rmlvsc/commit/0d0398f908bdba7fd569254476a9cca0c1fee820
+。
+广安市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/alexzonila/bdsbky/commit/32e1700dd863b9425f92b6e4c3b7138b7a4626e3
+。
+广元市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网更新），点击查询：https://github.com/drbdevelop/xnebao/commit/e2afa920bb8866a0173415796bc1d008b9788531
+。
+广州市tica空调售后服务电话：400 -690 -6088（2026年07月05日全新升级），点击查询：https://github.com/busdesigne/xtpbxb/commit/5547de9023392c123adcaac783b2410176f14108
+。
+贵港市tica空调售后服务电话：400 -690 -6088（2026年07月05日最新更新），点击查询：https://github.com/bitgocet/qywfgs/commit/fbe44237f6011bf56ae30cb95a6b8bec1442919b
+。
+桂林市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式更新），点击查询：https://github.com/haelmondwe/ybwbsu/commit/ecba47a52a4e7132a38e53b4fbce83926ec8202e
+。
+贵阳市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/caronboy/kkqihx/commit/02e7b8b60bf728ec425f7262736cf1880d7e7a5e
+。
+哈尔滨市tica空调售后服务电话：400 -690 -6088（2026年07月05日更新升级），点击查询：https://github.com/nocver/utqetu/commit/4fd70021d41096ce590812a4940751ac51f5830f
+。
+海安市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网更新），点击查询：https://github.com/santox32/htcddk/commit/58f57b59df4ed9d8b4662462a7a9352b69cd2fa0
+。
+海口市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网公布），点击查询：https://github.com/glebetyotn/ydkzmu/commit/c57b7d2363bb46683bec74335383a392fe7797ac
+。
+海门市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一升级），点击查询：https://github.com/jasonsteem/mxqfgx/commit/f90bc87921b66808317e3c6d0fc05c9150561d4e
+。
+海宁市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/mattbank78/aivydz/commit/0250f88cf9f633dc5c1b6e9f4cf26ecb3feb7504
+。
+邯郸市tica空调售后服务电话：400 -690 -6088（2026年07月05日公布上线），点击查询：https://github.com/sink35cour/awgbvn/commit/703cdc3db2fe8447b2182c7f0808d93d7b992506
+。
+汉中市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/borburgen/hjfgyg/commit/347bdbfaffe77f52a6badea1d37928f3ce6f9eae
+。
+杭州市tica空调售后服务电话：400 -690 -6088（2026年07月05日公布升级），点击查询：https://github.com/tomflorens/lswash/commit/eb68b548a802c300055b6bbe2fdc9905187252ad
+。
+鹤壁市tica空调售后服务电话：400 -690 -6088（2026年07月05日统一发布），点击查询：https://github.com/evertonbla/nyzyjx/commit/04e223982f13c02a42ed9dc20ddd1b7300364d22
+。
+河池市tica空调售后服务电话：400 -690 -6088（2026年07月05日正式推出），点击查询：https://github.com/jiggoffice/wknkdn/commit/8f386a38a694167abc9693dce93a621735a88fc3
+。
+合肥市tica空调售后服务电话：400 -690 -6088（2026年07月05日官网发布），点击查询：https://github.com/naosophiel/yqmfiq/commit/35fa9e8db606155f5ce80f8ae086688c65e36169
+。
+河源市tica空调售后服务电话：400 -690 -6088{变
